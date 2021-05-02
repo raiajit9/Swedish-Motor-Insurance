@@ -11,5 +11,5 @@ Using R-Tools
 5.	The committee wants to understand what affects their claim rates so as to decide the right premiums for a certain set of situations. Hence, they need to find whether the insured amount, zone, kilometer, bonus, or make affects the claim rates and to what extent.
 Technologies Used
 # Technologies Used
-![alt text](https://blogs.swarthmore.edu/its/2017/06/19/r-r-studio-and-datacamp/)
+![alt text](https://excrack.com/wp-content/uploads/2020/04/R-Studio-8.13-Build-176095-Crack-Full-Latest.png)
 
